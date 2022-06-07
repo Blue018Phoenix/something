@@ -1,4 +1,4 @@
 # Something
 IDK what this is lol
 
-![ValstraxWut](https://user-images.githubusercontent.com/48496899/172276339-009c43fb-43cf-484f-8190-eb59c3f6d0da.png)
+![ValstraxWut](https://user-images.githubusercontent.com/48496899/172276446-4d020157-1e90-4e9d-a664-1070df4e1c40.png)
